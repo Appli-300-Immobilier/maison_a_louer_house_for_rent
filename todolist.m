@@ -6,7 +6,7 @@
 - **Address/Contact:** 
   - Vente, location et achat maison, terrain, boutique et lieu commercial
   - 
-  - Page � Immobilier
+  - Page é Immobilier
   - 
   - Douala, Cameroon
   - 
